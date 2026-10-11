@@ -1,0 +1,3 @@
+# Talking club 
+* Led 22 lessons from February 12 to April 30, 2026, every Tuesday and Thursday.
+* Worked with a consisted group of 9 regular participants from 5/6 Grades to develop their English speaking skills.
