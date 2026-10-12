@@ -1,6 +1,6 @@
 # Portfolio
 ## 🛠️ Projects
-* **President of Middle School** 2024-2026
+* **President of Middle School 'Asia-Cambridge'** 2024-2025
 * **Article about Alymbek Datka** 2026
 * **Talking Club** 2026
 * **School Journal** 2026
